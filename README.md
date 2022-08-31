@@ -1,4 +1,4 @@
-# Programų sistemų projektavimass <br />
+# Programų sistemų projektavimas <br />
 
 Monika Zabukaitė (1 grupė)
 
